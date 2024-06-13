@@ -15,4 +15,4 @@ Ans: I usually like to watch youtube videos and Instagram reels for recreational
 
 ## Tell me a little about your hometown.
 
-Certainly, My hometown is Delhi. It is an amazing city which mixes old history with modern life. It has many famous historical places like Qutub Minar, India Gate and Red Fort. Delhi is also known for its vibrant markets like Chandni Chowk. The city is full of different cultures and foods, from street snacks to fancy restaurants.
+Certainly, My hometown is Delhi. It is an amazing city which mixes old history with modern life. It has many famous historical places like Qutub Minar, India Gate and Red Fort. Delhi is also known for its vibrant markets like Chandni Chowk. The city is full of different cultures and foods, from street snacks to fancy restaurants. It has good metro system and roads, making it easy to travel around.
